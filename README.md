@@ -22,6 +22,6 @@ Now focused on ages 40–60: pre/post-menopausal health for women, and age-relat
 ### 🔧 Currently
 Integrating AI into our platform to improve user experience and clinical decision-making.
 
-📫 Let's connect on LinkedIn: www.linkedin.com/in/dr-shraddha-d-bangera-267a06281
-🌐 ikshanahealth.com
+📫 Let's connect on [LinkedIn](https://www.linkedin.com/in/dr-shraddha-d-bangera-267a06281)
+🌐 [ikshanahealth.com](https://ikshanahealth.com)
 
